@@ -1,0 +1,1 @@
+# Adilet-Moldobaev.github.io
